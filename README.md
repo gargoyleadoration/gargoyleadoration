@@ -38,5 +38,6 @@ I'm not a yumeshippers but I don't enjoy nonsharing yumes of my favorites!! Mall
 
    ^ This is where you'll see me if I'm not with my best friend!!
 
-
 </details>
+
+<img width="1009" height="237" alt="image" src="https://github.com/user-attachments/assets/2d92bb4b-92bb-46a9-96ec-1aa901c36422" />
