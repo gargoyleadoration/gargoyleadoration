@@ -33,6 +33,7 @@ Translation image of this Malleus LINE icon by RocketsBlastingOff on Reddit!
 I'm not a yumeshippers but I don't enjoy nonsharing yumes of my favorites!! Malleus & Leona r my wives too chat...
 - Be my friend talk to me about twst pls pls pls pls pls pls plspls i love twst so much
 - I own almost every single Malleus card on EN! Only missing his dorm uniform
+- This ACC is specifically for my TWST ponies!!
 
   <img width="415" height="301" alt="image" src="https://github.com/user-attachments/assets/47f7bdd2-372a-4df1-a256-b30e8d817d93" />
 
