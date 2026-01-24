@@ -18,6 +18,9 @@ These are examples of gargoyles! The first one shows the water channel, and that
 
 And now you know how to tell the difference betweena gargoyle and grotesque!!
 
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/1a6b841c-cc5a-4b20-9d58-a60cbb5863cd" />
+
+Translation of Diasomnia LINE icon by RocketsBlastingOff on Reddit!
 </details>
 
 <details>
