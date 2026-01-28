@@ -4,6 +4,8 @@
 ## ${\color{#397c38}"Dawn}$ ${\color{#397c38}will}$ ${\color{#397c38}never}$ ${\color{#397c38}break,}$ ${\color{#397c38}there}$ ${\color{#397c38}will}$ ${\color{#397c38}never}$ ${\color{#397c38}be}$ ${\color{#397c38}an}$ ${\color{#397c38}end."}$
 ### Translation by [Mystery Shop on Tumblr!](https://mysteryshoptls.tumblr.com/)
 
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=gargoyleadoration&color=755691&style=for-the-badge&label=gargoyles)
+
 <details>
  <summary>${\color{#575b66}Gargoyles}$ ${\color{#575b66}VS}$ ${\color{#575b66}Grotesques}$</summary>
   They may look similar, but they could not serve a different purpose. Gargoyles are the ones built to serve a purpose, grotesques are meant to be purely decorational. In architecture, a grotesque refers to a carved stone figure, while a gargoyle refers to a carved figure designed for the purpose of draining water from the sides of a building. These two are often mistaken for each other.
