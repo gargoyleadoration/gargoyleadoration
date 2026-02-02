@@ -28,15 +28,11 @@ Translation image of this Malleus LINE icon by RocketsBlastingOff on Reddit!
 <details>
 <summary>${\color{#513c80}Ponytown}$ ${\color{#513c80}Info}$ ${\color{#513c80}here!!}$</summary>
 
-  - C+H always ^_^ I'm a very clingy person!!
-- W2I! Often offtab so I'll likely miss it!!!!!
-- PLEASE PLEASE INT FIRST!! I have social anxiety BUT I AM TALKATIVE I SWEAR!!!!!!!!!!
-- Big big big Malleus fan!! Nonsharing yumeshippers please dni </3
-I'm not a yumeshippers but I don't enjoy nonsharing yumes of my favorites!! Malleus & Leona r my wives too chat...
-- Be my friend talk to me about twst pls pls pls pls pls pls plspls i love twst so much
-- I own almost every single Malleus card on EN! Only missing his dorm uniform
-- This ACC is specifically for my TWST ponies!!
-
+  - C + H unless I have dniuf in my name! Friends r always  free to int!
+  - IWC/IWEC just means please don't talk to me unless I int first ^_^
+  - This is specifically for my TWST ponies!!
+  - I don't like NSFW jokes unless you're a friend whispering it to me or in party chat, please refrain from making them in public chat around me
+  - I'm flagged as under 18 despite being 19, so I won't be seen outside of safe servers (not that I went to 18+ ones anyway)
   <img width="415" height="301" alt="image" src="https://github.com/user-attachments/assets/47f7bdd2-372a-4df1-a256-b30e8d817d93" />
 
    ^ This is where you'll see me if I'm not with my best friend!!
