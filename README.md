@@ -30,8 +30,10 @@ Translation image of this Malleus LINE icon by RocketsBlastingOff on Reddit!
 
   - C + H if I don't have DNIUF in my name!
   - IWC/IWECUF just means don't talk to me unless I int first
-  - You'll see me most often around here if I'm not with any of my other friends !! I'm also seen around the HOYO and PJSK area with other friends!!
-  - 
+  - Please int first, I fear of overstepping boundaries + being unwelcomed !! I'm very open to be interacted with, I just have terrible social anxiety 3:
+  - I'm autistic, so please be patient when interacting ! I may misinterpret your tone or how you feel about me, so please use tone tags
+  - You should def bmf if I'm following you on this acc !! I'd like more friends to hang out with, I don't have many to hang out with on here
+  - Usually seen around here or with my best friend !
 <img width="470" height="441" alt="image" src="https://github.com/user-attachments/assets/f1d8b50f-4e00-44f2-a494-51190e6a2137" />
 
 
