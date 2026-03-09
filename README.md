@@ -26,15 +26,19 @@ Translation image of this Malleus LINE icon by RocketsBlastingOff on Reddit!
 </details>
 
 <details>
-<summary>${\color{#513c80}Ponytown}$ ${\color{#513c80}Info}$ ${\color{#513c80}here!!}$</summary>
+<summary> ${\color{#513c80}INFO}$ ${\color{#513c80}here!!}$</summary>
 
-  - C + H if I don't have DNIUF in my name!
-  - IWC/IWECUF just means don't talk to me unless I int first
-  - Please int first, I fear of overstepping boundaries + being unwelcomed !! I'm very open to be interacted with, I just have terrible social anxiety 3:
-  - I'm autistic, so please be patient when interacting ! I may misinterpret your tone or how you feel about me, so please use tone tags
-  - You should def bmf if I'm following you on this acc !! I'd like more friends to hang out with, I don't have many to hang out with on here
-  - Usually seen around here or with my best friend !
-<img width="470" height="441" alt="image" src="https://github.com/user-attachments/assets/f1d8b50f-4e00-44f2-a494-51190e6a2137" />
+  - Usually allowing c+h, my love language is quality time + cudcomf
+  - W2I, I'm usually offtab! I don't like speaking in public chat, either
+  - I have mental issues + anxiety, I may not speak first
+  - Interact w care unless we're friends! I'm sensitive & can only handle my friends being mean (as a joke!)
+  - I'm basically a self/yumeshipper w Leona & Malleus ! If you're non-sharing or are otherwise uncomfortable, pleae dni! I don't call myself a self/yumeshipper, but it is what I am
+  - I am in fact very clingy! If you don't like this, we probably won't be friends
+  - I have a DNI (Basic, pro/darkshippers, etc), but I also do block freely
+  - I'm not mean !! I may make mean jokes, but I do care for all of my friends deeply
+  - Don't make NSFW jokes unless we've been friends for a bit. I don't like them.
+  - If you don't like me, just perm fully block me. Don't keep temp blocking me.
+  - I don't usually get angry often, but if I get tired of something, it's likely you might've done something. I never take out my anger on others, and if I do, I'm quick to apologize & try to make it up.
 
 
 </details>
