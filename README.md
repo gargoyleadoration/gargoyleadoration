@@ -32,7 +32,8 @@ Translation image of this Malleus LINE icon by RocketsBlastingOff on Reddit!
   - W2I, I'm usually offtab! I don't like speaking in public chat, either
   - I have mental issues + anxiety, I may not speak first
   - Interact w care unless we're friends! I'm sensitive & can only handle my friends being mean (as a joke!)
-  - I'm basically a self/yumeshipper w Leona & Malleus ! If you're non-sharing or are otherwise uncomfortable, pleae dni! I don't call myself a self/yumeshipper, but it is what I am
+  - I'm basically a self/yumeshipper w Leona & Malleus ! If you're non-sharing or are otherwise uncomfortable, pleae dni! I don't call myself a self/yumeshipper, but it is what I am.
+     - Completely sharing, so don't worry  ^_^
   - I am in fact very clingy! If you don't like this, we probably won't be friends
   - I have a DNI (Basic, pro/darkshippers, etc), but I also do block freely
   - I'm not mean !! I may make mean jokes, but I do care for all of my friends deeply
