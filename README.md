@@ -40,6 +40,7 @@ Translation image of this Malleus LINE icon by RocketsBlastingOff on Reddit!
   - Don't make NSFW jokes unless we've been friends for a bit. I don't like them.
   - If you don't like me, just perm fully block me. Don't keep temp blocking me.
   - I don't usually get angry often, but if I get tired of something, it's likely you might've done something. I never take out my anger on others, and if I do, I'm quick to apologize & try to make it up.
+  - Chronic infodumper, genuinely cannot stop talking about my hyperfixations
 
 
 </details>
