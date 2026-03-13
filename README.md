@@ -28,6 +28,7 @@ Translation image of this Malleus LINE icon by RocketsBlastingOff on Reddit!
 <details>
 <summary> ${\color{#513c80}INFO}$ ${\color{#513c80}here!!}$</summary>
 
+  - 19 y/o, minors be  aware ! I don't tend to get too close to people too far from my age
   - Usually allowing c+h, my love language is quality time + cudcomf
   - W2I, I'm usually offtab! I don't like speaking in public chat, either
   - I have mental issues + anxiety, I may not speak first
