@@ -30,7 +30,7 @@
     - My mood may switch every now and then and I may be less talkative
     - I'm very clingy
   - I'm autistic, so please use tone tags !!
-  - I'm a Malleus/Leona yumeshipper/selfshipper! I don't mind others who do the same!! Let's all appreciate them together
+  - I'm a Malleus/Leona yumeshipper/selfshipper! I don't mind others who do the same!! Nonsharing yumes will need to be aware that I also yume with them ^_^
   - I may make NSFW jokes if we get close if you're 18+ ! If you mind that, I'd rather not be close friends but we can still hang out !!
 </details>
 
