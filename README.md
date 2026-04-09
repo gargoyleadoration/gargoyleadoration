@@ -17,7 +17,7 @@
   - Ships dni unless you're my friend or it's platonic!! 3:
   - W2i unless you're in my party !! Always offtab
   - I block freely, but I do have a dni
-      - Basic dni, pro/darkshippers, people who make sexual jokes or cosplay NSFW media in the safe server (such as what in hell is bad)
+      - Basic dni, pro/darkshippers, people who make sexual jokes (like "humping" a pony) or cosplay NSFW media in the safe server (such as what in hell is bad)
 </details>
 
 <details>
