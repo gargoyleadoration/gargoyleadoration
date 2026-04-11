@@ -18,6 +18,7 @@
   - W2i unless you're in my party !! Always offtab
   - I block freely, but I do have a dni
       - Basic dni, pro/darkshippers, people who make sexual jokes (like "humping" a pony) or cosplay NSFW media in the safe server (such as what in hell is bad)
+      - Updating this to say: ANYONE who plays Pressure (Roblox) despite what the creator did. This is not a "separate the art from the artist" moment. He RAPED someone. Playing this game still supports him, and I will die on this hill. Do not talk to me if you still play Pressure.
 </details>
 
 <details>
